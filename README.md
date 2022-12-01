@@ -1,4 +1,4 @@
-### PFP Art by AdranNorgate (Inkbunny) :heart:
+### PFP Art by ArdanNorgate (Inkbunny) :heart:
 
 An advanced beginner programmer that likes to play with APIs. 
 
